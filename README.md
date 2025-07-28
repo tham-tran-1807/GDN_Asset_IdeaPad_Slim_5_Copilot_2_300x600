@@ -1,0 +1,2 @@
+# GDN_Asset_IdeaPad_Slim_5_Copilot_2_300x600
+GDN_Asset_IdeaPad_Slim_5_Copilot_2_300x600
